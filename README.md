@@ -1,0 +1,1 @@
+/*HELLO WORLD  GUYS TODAY I WANT TO SAY THAT  U WASTING YOUR TIME HERE. But anyway here will be some homeworks and else.*/
